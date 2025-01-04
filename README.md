@@ -3,5 +3,5 @@
   
  sign straw
 
-dni if tcc or dsmp fan tbats it
+dni tcc and dsmp fans tbats it
 

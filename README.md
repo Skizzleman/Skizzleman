@@ -3,5 +3,5 @@
   
  sign strawpage please!!
 
-dni tcc and dsmp fans tbats it
+dni basic criteria, -11 and 21+, tcc and dsmp fans tbats it
 

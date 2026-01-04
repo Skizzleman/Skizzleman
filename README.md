@@ -6,4 +6,4 @@
 
 <p align="center"> <img src="https://media1.tenor.com/m/rVB5r0P4FnwAAAAd/impulsesv-skizzleman.gif" width="200" />
 
-[@dippledop](https://github.com/dippledop) alt account &nbsp; [@ssillystring](https://github.com/ssilystring) friend
+[@dippledop](https://github.com/dippledop) alt account &nbsp;&emsp; [@ssillystring](https://github.com/ssilystring) friend

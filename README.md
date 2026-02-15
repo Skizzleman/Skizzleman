@@ -6,7 +6,7 @@
 <p align="center"> i love olivennedy
 
 
-<p align="center"> <img src="https://media1.tenor.com/m/pS7fCm0M97kAAAAd/carlos-oliveira.gif" width="200" />
+<p align="center"> <img src="https://media1.tenor.com/m/8LKy8yq1S-8AAAAd/carlos-oliveira-resident-evil3remake.gif" width="300" />
 
 
 <p align="center">

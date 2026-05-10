@@ -5,7 +5,7 @@
 
 
 <p align="center"> <img src="https://media1.tenor.com/m/8LKy8yq1S-8AAAAd/carlos-oliveira-resident-evil3remake.gif" width="300" />
-<p align="center"> i fricking love the quarry (and re)
+
 <p align="center">
   <a href="https://github.com/Skizzleman">@Skizzleman</a> alt account&nbsp;&emsp;|&nbsp;&emsp; <a href="https://github.com/ssillystring">@ssilystring</a> friend
 </p>

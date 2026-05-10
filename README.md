@@ -1,4 +1,4 @@
-=<p align="center"> hi sign the strawp & ata please!
+=<p align="center"> Hi, sign the strawp & ata please!
 
 
 <p align="center"> im not too active on pt anymore but please int if you think im cool, im nice i swear.. rattles keys
